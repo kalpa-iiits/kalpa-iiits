@@ -126,7 +126,7 @@ I'm always interested in collaborating on:
 
 📧 **Email:** [kalpahe@gmail.com](mailto:kalpahe@gmail.com)
 
-💼 **LinkedIn:** *(Add your LinkedIn profile URL here)*
+💼 **LinkedIn:** *(linkedin.com/in/kalpajyoti-handique-173860213/)*
 
 🌐 **Portfolio:** *(Add your portfolio website when available)*
 
